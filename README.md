@@ -1,0 +1,1 @@
+# landingconmac_noadapt
